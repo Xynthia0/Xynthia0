@@ -1,0 +1,4 @@
+- Hi, I’m @Xynthia0
+- I’m interested in coding
+- I’m currently learning javascript
+- 🔥 Thanks for checking my profile 🔥
